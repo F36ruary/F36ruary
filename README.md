@@ -28,5 +28,5 @@ im not a part of as many fandoms as i used to, but ill list some of them here, i
 - BLUEY
 - OWL HOUSE
 - CARMEN SANDIEGO
-
+- NINJAGO
   and a few smaller ones. 
