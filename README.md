@@ -29,5 +29,9 @@ im not a part of as many fandoms as i used to, but ill list some of them here, i
 - OWL HOUSE
 - CARMEN SANDIEGO
 - NINJAGO
-
+- GLITTERFORCE
+- FROZEN
+- FLOWERING HEART
+- FRIEREN
   and a few smaller ones. 
+
