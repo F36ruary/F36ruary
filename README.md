@@ -19,19 +19,26 @@ otherwise, you can ALWAYS interact.
 im not a part of as many fandoms as i used to, but ill list some of them here, incase you wanna yap together (*ᴗ͈ˬᴗ͈)ꕤ*.ﾟ 
 
 - MLP
+- TBHK
+- KDH (DUHHH)
 - MHA (THE MANGA.)
 - GI
 - HSR
+- CRK
+- SVSS
+- TSHD
 - TGCF
 - JESUS (i know thats not exactely a fandom but...)
-- Sasaki and Miyano, honestly most bl's... BUT NOT THE SEXUAL ONES, PERISH.
+- SASAKI AND MIYANO,
+
+honestly most bl's... BUT NOT THE SEXUAL ONES, PERISH. (not yaoi baisically)
+
 - BLUEY
-- OWL HOUSE
+- cars. (can you call that a fandom?)
+- F1
 - CARMEN SANDIEGO
 - NINJAGO
-- GLITTERFORCE
-- FROZEN
-- FLOWERING HEART
 - FRIEREN
+
   and a few smaller ones. 
 
