@@ -20,16 +20,14 @@ im not a part of as many fandoms as i used to, but ill list some of them here, i
 
 - MLP
 - TBHK
-- KDH (DUHHH)
-- MHA (THE MANGA.)
+- KDH 
+- MHA 
 - GI
 - HSR
 - CRK
 - SVSS
 - TSHD
 - TGCF
-- JESUS (i know thats not exactely a fandom but...)
-- SASAKI AND MIYANO,
+- ORTHODOXY
 
-honestly most bl's... BUT NOT THE SEXUAL ONES, PERISH. (not yaoi baisically)
 
