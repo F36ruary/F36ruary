@@ -33,12 +33,3 @@ im not a part of as many fandoms as i used to, but ill list some of them here, i
 
 honestly most bl's... BUT NOT THE SEXUAL ONES, PERISH. (not yaoi baisically)
 
-- BLUEY
-- cars. (can you call that a fandom?)
-- F1
-- CARMEN SANDIEGO
-- NINJAGO
-- FRIEREN
-
-  and a few smaller ones. 
-
